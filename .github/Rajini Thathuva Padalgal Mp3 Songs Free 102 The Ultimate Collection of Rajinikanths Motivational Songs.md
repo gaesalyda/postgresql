@@ -1,0 +1,26 @@
+
+ 
+# Rajini Thathuva Padalgal: A Collection of Superstar Rajinikanth's Inspirational Songs
+ 
+Rajinikanth is one of the most popular and influential actors in Indian cinema. He has starred in over 160 films, spanning various genres and languages. He is known for his charismatic screen presence, unique style, and punch dialogues. He is also admired for his humble personality, philanthropic activities, and spiritual beliefs.
+ 
+One of the aspects that makes Rajinikanth's movies memorable is the music. He has worked with some of the finest composers and singers in the industry, who have created songs that suit his image and character. Among these songs, there are some that convey a message of motivation, wisdom, and positivity. These songs are called *thathuva padalgal*, which means philosophical songs in Tamil.
+ 
+**Download File ->>> [https://t.co/D8VoU9xb9Q](https://t.co/D8VoU9xb9Q)**
+
+
+ 
+In this article, we will explore some of the best *thathuva padalgal* from Rajinikanth's movies. These songs are not only catchy and melodious, but also inspiring and uplifting. They offer valuable lessons on life, love, success, and happiness. They also reflect Rajinikanth's own philosophy and outlook on life.
+ 
+Here are some of the *thathuva padalgal* from Rajinikanth's movies that you can listen to for free online:
+ 
+Rajinikanth Thathuva Paadalgal Mp3 Download,  Rajini Hits Thathuva Padalgal Free Download,  Rajini Thathuva Songs Mp3 Tamil Download,  Rajinikanth Thathuva Padalgal Youtube Videos,  Rajini Thathuva Padalgal List with Lyrics,  Rajinikanth Thathuva Paadalgal Mp3 Songs,  Rajini Thathuva Padalgal Mp3 Free Download,  Rajinikanth Thathuva Padalgal HD Video Songs,  Rajini Thathuva Padalgal Rhythm Zone Music,  Rajinikanth Thathuva Paadalgal Online Streaming,  Rajini Thathuva Padalgal Mp3 Tamilwire,  Rajinikanth Thathuva Padalgal Audio Songs,  Rajini Thathuva Padalgal Mp3 SoundCloud,  Rajinikanth Thathuva Paadalgal Album Download,  Rajini Thathuva Padalgal Mp3 Starmusiq,  Rajinikanth Thathuva Padalgal Zip File Download,  Rajini Thathuva Padalgal Mp3 Masstamilan,  Rajinikanth Thathuva Paadalgal Playlist Download,  Rajini Thathuva Padalgal Mp3 Isaimini,  Rajinikanth Thathuva Paadalgal Ringtone Download,  Rajini Thathuva Padalgal Mp3 Kuttyweb,  Rajinikanth Thathuva Paadalgal Karaoke Download,  Rajini Thathuva Padalgal Mp3 Gaana,  Rajinikanth Thathuva Paadalgal Lyrics Download,  Rajini Thathuva Padalgal Mp3 Raaga,  Rajinikanth Thathuva Paadalgal Video Download,  Rajini Thathuva Padalgal Mp3 Saavn,  Rajinikanth Thathuva Paadalgal Song Download,  Rajini Thathuva Padalgal Mp3 Hungama,  Rajinikanth Thathuva Paadalgal Full Album Download,  Rajini Thathuva Padalgal Mp3 Wynk Music,  Rajinikanth Thathuva Paadalgal Tamil Songs Download,  Rajini Thathuva Padalgal Mp3 Spotify,  Rajinikanth Thathuva Paadalgal HD Audio Download,  Rajini Thathuva Padalgal Mp3 JioSaavn,  Rajinikanth Thathuva Paadalgal 320kbps Download,  Rajini Thathuva Padalgal Mp3 Amazon Music,  Rajinikanth Thathuva Paadalgal High Quality Download,  Rajini Thathuva Padalga
+ 
+- **Kadavul Ullamae** from *Anbulla Rajinikanth* (1984): This song is a tribute to God and his grace. It expresses gratitude for all the blessings and challenges in life. It also urges the listener to have faith and trust in God's plan. The song was composed by Ilaiyaraaja and sung by S.P. Balasubrahmanyam[^1^].
+- **Pothuvaga En Manasu** from *Murattukkalai* (1980): This song is a celebration of life and its beauty. It encourages the listener to enjoy every moment and appreciate the simple things in life. It also advises the listener to be humble, generous, and compassionate. The song was composed by Ilaiyaraaja and sung by Malaysia Vasudevan[^1^].
+- **Raagangal** from *Thillu Mullu* (1981): This song is a reflection on the changing times and trends. It compares life to a musical scale, where different notes create different emotions. It also suggests that one should adapt to the changes and be flexible in their approach. The song was composed by M.S. Viswanathan and sung by S.P. Balasubrahmanyam[^1^].
+- **Kadhalin Deepam** from *Thambikku Entha Ooru* (1984): This song is a declaration of love and its power. It describes how love can transform a person and make them feel alive. It also emphasizes the importance of expressing one's feelings and being loyal to one's partner. The song was composed by Ilaiyaraaja and sung by S.P. Balasubrahmanyam[^1^].
+- **Katril Endhan** from *Johny* (1980): This song is a meditation on the nature of happiness and sorrow. It observes how happiness and sorrow are like two sides of a coin, and how they are relative to one's perspective. It also advises the listener to be content with what they have and not to compare themselves with others. The song was composed by Ilaiyaraaja and sung by S.Janaki[^1^].
+- **Senthaazham Poovil** from *Mullum Malarum* (1978): This song is a praise of motherhood and its sacrifices. It compares a mother to a lotus flower, which blooms in muddy water without losing its purity. It also acknowledges the mother's role in shaping one's character and destiny. The song was composed by Ilaiyaraaja and sung by K.J.Yesudas[^1^]. 8cf37b1e13
+
+
